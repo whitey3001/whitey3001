@@ -13,7 +13,7 @@
  
 -📫 How to reach me
 
-  * Through Linkedin
+  * Through Linkedin- https://www.linkedin.com/in/bhoomi-chauhan-3819b4321
    
  ⚡ Fun fact: 
     I'm a very good swimmer, dancer and loves to vibe on songs..
