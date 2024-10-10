@@ -2,7 +2,7 @@
 
 😄 Enthusiastic learner,creator
 
- 👀 I’m-
+ 👀 I’m a-
   * 1st Year BTech CSE student
   * Currently in Bennett University
   * Intrested to explore more in AI
